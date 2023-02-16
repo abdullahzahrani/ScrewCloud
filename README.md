@@ -12,3 +12,5 @@
 
 https://user-images.githubusercontent.com/80927488/216805036-205f5945-33e4-4625-8f92-f8c9b533993b.mp4
 
+الحمدلله حصلنا على المركز الثامن 
+https://www.linkedin.com/posts/abdullah-alzahrani-it_alibabacloud-leap23-leap2023-activity-7029659732168638464-c5Mu?utm_source=share&utm_medium=member_android
